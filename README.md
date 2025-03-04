@@ -9,4 +9,4 @@ busy 24/7 because of work/school.
 I may not be around pt that much. 
 if you see me in pt feel free to c+h
 
-I LOVE MY WIFE VERY MUCH 
+I LOVE MY WWIFE SAM VERY MUCH 
