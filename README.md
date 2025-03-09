@@ -3,6 +3,8 @@ info for pt;;
 
 you can call me yellow or yel
 
+I'm multifandom and yeah I really love my interests
+
 int with me whenever you want as long as you don't get weird and all that sht cus I have no time for that. 
 
 I'm very friendly and i get comfortable around ppl alot
