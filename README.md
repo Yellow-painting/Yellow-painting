@@ -1,4 +1,4 @@
-hey readerlings ;; 
+
 info for pt;;
 
 you can call me yellow or yel
@@ -15,3 +15,4 @@ I may not be around pt that much.
 if you see me in pt feel free to c+h
 
 I LOVE MY WWIFE SAM VERY MUCH 
+
