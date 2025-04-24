@@ -12,7 +12,5 @@ I'm very friendly and i get comfortable around ppl alot
 busy 24/7 because of work/school.
 
 I may not be around pt that much. 
-if you see me in pt feel free to c+h
-
-I LOVE MY WWIFE SAM VERY MUCH 
+if you see me in pt feel free to c+h 
 
