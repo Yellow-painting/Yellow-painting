@@ -1,16 +1,10 @@
+![Untitled60_20250607200106](https://github.com/user-attachments/assets/36e759ec-90a7-4671-931b-8a8a38bfa2e4)
+ ㅤㅤ love me like your sailor , ,ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+     made by cake ♥ !!ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ 
 
-info for pt;;
 
-you can call me yellow or yel
 
-I'm multifandom and yeah I really love my interests
 
-int with me whenever you want as long as you don't get weird and all that sht cus I have no time for that. 
 
-I'm very friendly and i get comfortable around ppl alot
 
-busy 24/7 because of work/school.
-
-I may not be around pt that much. 
-if you see me in pt feel free to c+h 
 
