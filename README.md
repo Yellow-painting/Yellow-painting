@@ -8,6 +8,8 @@ W2i at all times, just in case I'm offtab or busy !ㅤ ㅤㅤㅤㅤㅤㅤ
 
 I may be socially awkward and hard to interact with people so please bare with me (also im getting better interacting trust)
 
+Im cranky alot of times so i put dniuid on my name since idk either who to talk to or im just picky..
+
 Im in different areas sometimes so you could find me next to the sonic area and around transformers area 
 (I might sometimes be on the roblox area) 
 
